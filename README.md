@@ -1,0 +1,5 @@
+- 👋 @sgs-jrae | Jacey Rae Harris
+- 🏢 DevOps Workflow Engineer
+- 🏳️‍🌈 She/Her | 🔆 ♓ | 🌙 ♌ | 🚀 ♐ 
+- 💻 Javascript | Python | Esko AE
+- 📫 Jacey.Harris@sgsco.com
